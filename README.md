@@ -1,0 +1,1 @@
+# a-resolution-good-for-only-thirty-days
